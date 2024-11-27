@@ -1,2 +1,2 @@
 # Starlight Leak
-if you think this is ratted you have brain issue
+i mightve had a brain issue before
